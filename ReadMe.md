@@ -1,5 +1,5 @@
 # 💫 About Me:
-💊  Trabalhando em farmácia<br>🏖️  Ingleses/Florianópolis/SC<br>💻  Estudando no DEVinHouse
+💊  Trabalhando em farmácia<br>🏖️  Ingleses/Florianópolis/SC<br>💻  
 
 
 ## 🌐 Socials:
